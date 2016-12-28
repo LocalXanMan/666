@@ -1,6 +1,6 @@
 # 666
 For the homies 
 
-Hey guys my names Matt, i worship the one in the firey pit, do you believe in god? 
+Hey guys my names Matt, i listen to $uicideboy$, Ramirez, Pouya, FatNick, and many others.
 
-// i have written a simple sentence that describes my beleifs on this earth lmao. 
+// i have written some words of wisdom.
